@@ -1,0 +1,2 @@
+# trig_urav_10_klass
+trig_urav_10_klass
